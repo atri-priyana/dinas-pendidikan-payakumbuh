@@ -1,2 +1,2 @@
 # dinas-pendidikan-payakumbuh
-Sekolah Sepanjang Hayat
+Pendidikan Sepanjang Hayat
